@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @rai-sujan
+- 👀 I’m interested in learning new stuff
+- 🌱 I’m currently learning Business Central
